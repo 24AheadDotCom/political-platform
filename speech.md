@@ -1,0 +1,3 @@
+# Open speech and open debate
+
+This political party will very strongly support open speech and open debate. Speech involving threats and the like will not be supported by this political party, but attempts to stifle legitimate speech - broadly defined - will be opposed. Speech codes and the like will be opposed where possible. Currently, partisan outlets attempt to smear public figures for speaking to certain groups; this political party will oppose such attempts. Attempts to stifle debate through the use of smears will be strongly opposed. This political party will attempt to discredit public figures who engage in such tactics and will work to make them present logical arguments against their opponents.
