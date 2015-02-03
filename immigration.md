@@ -1,6 +1,6 @@
 # Immigration and border control
 
-- Legal immigration will be reduced to around one quarter of current levels.
+- Future legal immigration will be reduced to around one quarter of current levels. The millions of potential legal immigrants currently waiting in the queue will be processed as quickly as possible, but limited numbers will be accepted after that point.
 - Skilled immigration will take a higher precedence over chain migration, but any skilled immigration will take into consideration the negative impacts (braindrain, etc.) on the sending countries.
 - "Stapling a greem card" to the diplomas of foreign citizens who graduate from U.S. colleges will be opposed. Instead, the long-term benefits of those graduates returning to their home countries will be stressed.
 - "DREAMers" - those brought into the U.S. as children and teenagers by their parents - will be encouraged to return home and help their own countries. Relatively small stipends may be given to some in order to ease their transition back into their own countries.
