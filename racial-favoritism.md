@@ -1,6 +1,6 @@
 # Racial favoritism
 
-Hate crime laws, affirmative action, college and other discounts based on race, and all other forms of racial favoritism will be eliminated whereever possible. Likewise with laws showing favoritism based on gender and sexual orientation.
+Hate crime laws, affirmative action, college and other discounts based on race, and all other forms of racial favoritism will be eliminated wherever possible. Likewise with laws showing favoritism based on gender and sexual orientation.
 
 Laws forbidding reasonable discrimination will remain in effect.
 
