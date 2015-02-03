@@ -13,7 +13,7 @@
 - Illegal alien children will be able to obtain K-12 educations, but the goal will be to encourage their parents to return home with them.
 - U.S. citizen children of illegal aliens will have the same rights as other U.S. citizens and won't be denaturalized.
 - A constitional amendment tightening birthright citizenship rules to those who have at least one U.S. citizen parent would be a long-term goal, but achieving that wouldn't be counted on.
-- Attempts to [make Americans assimilate to immigrants](http://24ahead.com/blog/archives/007811.html) rather than the other way around will be strongly opposes.
+- Attempts to [make Americans assimilate to immigrants](http://24ahead.com/blog/archives/007811.html) rather than the other way around will be strongly opposed.
 - Illegal aliens will be able to access emergency services, but the medium-term goal would be to reduce all other services they can receive where feasible. Preventing them from driving on public roads wouldn't be feasible, but not giving them drivers licenses is.
 - Attempts by foreign governments to undercut U.S. immigration laws - such as by handing out their national IDs inside the U.S., forming alliances with non-profit groups, and the like - will be strongly opposed and forbidden wherever possible.
 
